@@ -1,0 +1,1 @@
+- [S5 E19. Can a 20 hp Kubota D722 turbo diesel get better MPG than a Honda gasoline/ electric hybrid ?](https://youtu.be/BA-e1mJXpMs)
